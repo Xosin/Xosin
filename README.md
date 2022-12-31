@@ -1,10 +1,10 @@
 ## Hey 👋, I'm Xosin!  
 
-- 💗 Like music
+- 🎶 Like melody
 - 🌱 Ordinary workers
 - 🤖 Infj
 - 👀 Slow tempo, pay attention to feeling
-- 🌈 Love & Peace
+- 🌈 Love & Peace ❤️❤️❤️
 
 <!---
 Xosin/Xosin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
